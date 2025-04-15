@@ -1,1 +1,1 @@
-Proyectos varios de Analitica de datos | Retomando y practicando
+Proyectos varios de Analitica de datos | Especialización en Analitica de datos
